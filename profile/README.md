@@ -1,10 +1,23 @@
+[生中継📺🥊🤜🔴👉 西田凌佑vsロドリゲス ボクシング ライブ配信](https://worldsportshd.com/jp-boxing/)
+-
+
+[生中継📺🥊🤜🔴👉 西田凌佑vsロドリゲス ボクシング ライブ配信](https://worldsportshd.com/jp-boxing/)
+-
+
+[生中継📺🥊🤜🔴👉 西田凌佑vsロドリゲス ボクシング ライブ配信](https://worldsportshd.com/jp-boxing/)
+-
+
+[生中継📺🥊🤜🔴👉 西田凌佑vsロドリゲス ボクシング ライブ配信](https://worldsportshd.com/jp-boxing/)
+-
+
+[生中継📺🥊🤜🔴👉 西田凌佑vsロドリゲス ボクシング ライブ配信](https://worldsportshd.com/jp-boxing/)
+-
+
+
+
 エマヌエル・ロドリゲスvs西田凌佑の日程・放送・無料視聴・予想｜5.4『LUSHBOMU vol.3 feat.3150FIGHT』エディオンアリーナ大阪
 エマヌエル・ロドリゲス vs 西田凌佑 
 
-
-生中継📺🥊🤜🔴👉 西田凌佑vsロドリゲス ボクシング ライブ配信
-
-生中継📺🥊🤜🔴👉 西田凌佑vsロドリゲス ボクシング ライブ配信
 
 
 5月4日（土）、エディオンアリーナ大阪で開催される『LUSHBOMU vol.3 feat.3150FIGHT』にて、IBF世界バンタム級王者エマヌエル・ロドリゲス vs 西田凌佑の一戦が行われる。
